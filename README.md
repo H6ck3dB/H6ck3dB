@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @H6ck3dB
-- 👀 I’m interested in Hacking
+- 👀 I’m interested in the Universe
 - 🌱 I’m currently learning Everything
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me No
+- 📫 How to reach me, dont try
 - 😄 Pronouns: ...
 - ⚡ Fun fact: I am Stupid
 
